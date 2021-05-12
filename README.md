@@ -128,3 +128,5 @@
 
 
 ① 이 개인정보처리방침은 2021년 5월 6부터 적용됩니다.
+
+![1](https://user-images.githubusercontent.com/78525528/117931928-c2a4fe00-b33a-11eb-8639-95bcbc90899d.png)
